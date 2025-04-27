@@ -53,7 +53,11 @@
 
 
 ## Output:
-![Screenshot 2025-04-27 103812](https://github.com/user-attachments/assets/b54d8290-713e-4924-809b-6d182977b251)
+![Screenshot 2025-04-27 110020](https://github.com/user-attachments/assets/cb293479-36c2-4614-b4cb-7667e886eed5)
+
+
+![Screenshot 2025-04-27 110039](https://github.com/user-attachments/assets/4356f88a-c425-4402-a2bd-53379ee4b273)
+
 
 
 ### Name: AYSHWARIYA.J
